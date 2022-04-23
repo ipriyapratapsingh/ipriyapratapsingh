@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ipriyapratapsingh
+- 👀 I’m interested to pursue a career in data analysis field where I can develop my skills and knowledge and contribute to industries growth to develop a sustainable society.
+- 🌱 I’m currently learning Google data analytics professional 
+- 💞️ I’m looking to collaborate on Data analysis, Data exploration , Data visualization, Digital marketing, data filtering / cleaning
+- 📫 reach me on linked in account https://www.linkedin.com/in/priya-singh-5a83a4226/ or on my mail ID :ipriyapratapsingh@gmail.com
